@@ -1,2 +1,0 @@
-# elieder
-meu animal favorito
